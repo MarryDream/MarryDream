@@ -4,6 +4,7 @@
 - ☕ 自闭，宅家，饮料上瘾不能自拔。
 - 🎮 红烧天堂...
 - 📫 联系方式：setomarry815@gmail.com
+- ⚡爱发电：https://afdian.net/a/marrydream
 
 ### Languages & Tools
 
